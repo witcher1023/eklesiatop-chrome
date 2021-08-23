@@ -1,7 +1,5 @@
-# subscribe chanel youtube : EKLESIA TOP  (biar berkah )
-# link subscribe http://bit.ly/EklesiaTop
-# BILA github ERROR update link ada di kolom diskripsi
-# waiting  SUBSCRIBE  EKLESIA TOP
+# subscribe chanel youtube : Techry
+# link subscribe https://www.youtube.com/channel/UC12vxItm3YMgBI6HahLazaQ?sub_confirmation=1
 
 ### Option 1 (Easiest way 🚑- No sound) 
 
